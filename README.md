@@ -65,6 +65,4 @@ My favorite scene is when Kevin prepares different traps around the house to sto
 
 **Home Alone is a timeless Christmas classic!** 🎅
 
----
 
-*Created with ❤️ by a movie lover.*
